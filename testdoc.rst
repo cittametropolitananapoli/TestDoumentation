@@ -49,15 +49,9 @@ c) svolgono attività di monitoraggio e di controllo sullo svolgimento dell’az
 
 d) redigono referti consuntivi sull’attività svolta e sui risultati conseguiti; tali referti sono   trasmessi al Presidente della Provincia, agli Assessori delegati, al nucleo di valutazione ed alla Direzione competente ad effettuare il controllo di gestione
 
-e) concorrono con compiti di analisi e di istruttoria alla formulazione degli atti del
-Presidente della Provincia e di quelli della Giunta garantendo la correttezza e la
-legittimità:
+e) concorrono con compiti di analisi e di istruttoria alla formulazione degli atti del Presidente della Provincia e di quelli della Giunta garantendo la correttezza e la legittimità;
 
-f) partecipano, se richiesti, alle riunioni del Consiglio, della Giunta e delle
-Commissioni consiliari, restando comunque a disposizione al fine di assicurare le
- informazioni e il supporto utili allo svolgimento dei lavori
-I dirigenti sono direttamente responsabili della traduzione in termini operativi degli
-obiettivi alla cui formulazione partecipano con attività istruttoria e di analisi e con autonome proposte nonché della correttezza amministrativa e dell’efficienza della gestione.
+f) partecipano, se richiesti, alle riunioni del Consiglio, della Giunta e delle Commissioni consiliari, restando comunque a disposizione al fine di assicurare le  informazioni e il supporto utili allo svolgimento dei lavori I dirigenti sono direttamente responsabili della traduzione in termini operativi degli obiettivi alla cui formulazione partecipano con attività istruttoria e di analisi e con autonome proposte nonché della correttezza amministrativa e dell’efficienza della gestione.
 
 Il Presidente vigila sull’operato dei dirigenti ed adotta, con decreto motivate; i provvedimenti di sospensione dell’esecutività degli atti dei dirigenti ave gli stessi siano stati adottati eccedendo le funzioni e gli obiettivi programmatici ad essi affidati.
 
